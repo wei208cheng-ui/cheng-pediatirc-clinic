@@ -1,2 +1,2 @@
-# zheng-pediatirc-clinic
-integrative, functional,energetic, individualized, 
+# Zhèng Wěidá-clinic
+Zhěnghé de, gōngnéngxìng de, chōngmǎn huólì de, gèrén huà de, néngliàng de, zhōngxī zhěnghé, yíngyǎng yǔ shēnghuó, jīngluò de zhìliáo. Měi gè jíbìng tā yǒu bèihòu de yuányīn, wǒmen zài zhìliáo shí chúle yòng yào yǐwài, yào zhīdào bìngrén bèihòu de shēnghuó xíguàn, yǐnshí xíguàn, jí zuìjìn shìfǒu yǒu fāshēng shénme bèijǐng, bǎ zhèxiē fàng zài yīqǐ hòu zài lái tǎolùn zhìliáo, zhèyàng jiù nénggòu shì bàn gōng bèi, hěn hǎo de bǎ bìng zhì hǎo.
